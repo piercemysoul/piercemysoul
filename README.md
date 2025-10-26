@@ -7,12 +7,18 @@
 
 . . . info ; !!
 
+⋮ ⌗ call me pier / pipi •⩊• 
+
 ⋮ ⌗ in regards to pronouns, i prefer feminine adressions 
 
 ⋮ ⌗ i block freely
 
-⋮ ⌗ feel free to int, cud, or bmf!!
+⋮ ⌗ feel free to int, cuds, or bmf!!
+
+⋮ ⌗ fllw = fllw ⟢ . .
+
+⋮ ⌗ dni list ( trauma dmprs, proshipprs, toxic plyrs, js generally annoying ppl) 
 
 . . . creds ; !! 
 
-profile pic by the hat man on pint ദ്ദി ˆᗜˆ ) . . go fllw them
+profile pic by the hat man on pint ദ്ദി ˆᗜˆ ) . . go check them out
